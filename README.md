@@ -1,4 +1,4 @@
-# Hi, I'm TAUHID. 👋
+# Hi, I'm Tauhid. 👋
 
 [![Visit Count](https://komarev.com/ghpvc/?username=tauhid080)](https://github.com/tauhid080)
 
