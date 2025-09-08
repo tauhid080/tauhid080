@@ -8,7 +8,9 @@
 
 ## 🚀 About Me
 
-I'm a expart of video editing. I can provide Profesional YouTube Video Editing, Product Marketing, Mobile apps Promosional video and e-commerce video editing to your liking. I will always be by your side InshaAllah. Contact me: tauhid1820@gmail.com and website: https://tauhid.sopnolikhi.com
+> “Code is like poetry — every line tells a story.”
+
+I'm a expart of JavaScript. I can provide Profesional YouTube Video Editing, Product Marketing, Mobile apps Promosional video and e-commerce video editing to your liking. Contact me: tauhid1820@gmail.com and website: https://tauhid.sopnolikhi.com
 
 ## Contact Me
 
